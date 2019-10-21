@@ -1,2 +1,0 @@
-# WilliamYurkowPortfolio2019
-Portfolio
